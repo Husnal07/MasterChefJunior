@@ -1,1 +1,1 @@
-# MasterChefJunior
+This recipe is about Mango Pancakes
